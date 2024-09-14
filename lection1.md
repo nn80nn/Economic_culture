@@ -341,3 +341,13 @@
 
 ![image](https://github.com/user-attachments/assets/40c653d5-cc30-4248-b5f2-37f3753c231a)
 
+**Основная проблема экономики:**
+
+Ограниченность экономических ресурсов
+
+Неограниченность человеческой жадности
+
+![image](https://github.com/user-attachments/assets/8da2d899-e774-47d8-b2bc-bf5556660b6e)
+
+
+
