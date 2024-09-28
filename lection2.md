@@ -168,5 +168,6 @@ r- ставка ожидаемой доходности в месяц
 
 ![image](https://github.com/user-attachments/assets/b48eed1b-ad34-468a-8433-e8bec97e4d96)
 
+![image](https://github.com/user-attachments/assets/99d25c1b-6acf-46b8-9e07-0815b5ce9c59)
 
 
