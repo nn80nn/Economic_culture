@@ -104,3 +104,9 @@
 
 ![image](https://github.com/user-attachments/assets/621a44c5-ad12-4e16-9ffb-c22460adb5f0)
 
+По завершению периода надо сравнить на сколько смогли уложиться в бюджет и проанализировать.
+
+![image](https://github.com/user-attachments/assets/f32e60ff-f044-4212-aecc-7c3e537dfefe)
+
+![image](https://github.com/user-attachments/assets/1930e267-5e1e-4498-b3f5-2e71f0db3c92)
+
