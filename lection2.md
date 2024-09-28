@@ -102,3 +102,5 @@
 
 **Семейный бюджет** - план доходов\расходов семьи
 
+![image](https://github.com/user-attachments/assets/621a44c5-ad12-4e16-9ffb-c22460adb5f0)
+
