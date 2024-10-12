@@ -247,5 +247,12 @@ budget – сумка, кошелек).
 
 ![image](https://github.com/user-attachments/assets/dff9e76b-483e-433d-9ded-3accefb20688)
 
-![image](https://github.com/user-attachments/assets/00e09411-520c-444e-a119-730775dac722)
+![image](https://github.com/user-attachments/assets/0628653e-95ec-40fc-910f-9d70ab506b6a)
+
+![image](https://github.com/user-attachments/assets/266cb6d0-6dde-4d31-9f37-f810a309dfa3)
+
+![image](https://github.com/user-attachments/assets/a5b820e0-386c-401a-89f3-71531f6df7c7)
+
+![image](https://github.com/user-attachments/assets/8d556bec-f904-4ba9-8e6d-927adfaf9ee1)
+
 
