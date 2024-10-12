@@ -245,3 +245,7 @@ budget – сумка, кошелек).
 страхование на случай временной нетрудоспособности и в связи с
 материнством, на обязательное медицинское страхование.
 
+![image](https://github.com/user-attachments/assets/dff9e76b-483e-433d-9ded-3accefb20688)
+
+![image](https://github.com/user-attachments/assets/00e09411-520c-444e-a119-730775dac722)
+
