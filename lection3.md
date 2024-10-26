@@ -273,4 +273,9 @@ budget – сумка, кошелек).
 
 ![image](https://github.com/user-attachments/assets/79cbffe8-87c6-4c67-8b48-abbcb92cc36f)
 
-с 34 слайда
+![image](https://github.com/user-attachments/assets/414a4e81-da5d-4727-bcf8-25470123e935)
+
+![image](https://github.com/user-attachments/assets/942e2c4f-bc1d-43a0-a882-edea3fb30881)
+
+![image](https://github.com/user-attachments/assets/09f2b13d-6f18-4e84-ad90-ee4772e888e3)
+
