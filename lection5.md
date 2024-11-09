@@ -208,3 +208,4 @@ to-peer (переводится как «от равного к равному»
 
 ![image](https://github.com/user-attachments/assets/fe92709c-dda7-493d-9fe5-644c4385d0a6)
 
+35 слайд
