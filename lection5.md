@@ -222,5 +222,8 @@ to-peer (переводится как «от равного к равному»
 
 ![image](https://github.com/user-attachments/assets/115c9f6f-dda2-4d67-b585-3bf0ac447d3e)
 
+![image](https://github.com/user-attachments/assets/48707f2d-b973-42f0-b2fb-d25548454118)
+
+![image](https://github.com/user-attachments/assets/924654c9-16c3-4d1c-bb79-da17f4b262c1)
 
 
