@@ -335,3 +335,13 @@
 В-третьих, издержки функционирования ПИФа могут быть довольно
 значительными, что означает снижение доходности для инвестора.
 
+![image](https://github.com/user-attachments/assets/81e4c751-e6ce-4469-aaa4-84b5f9e943ed)
+
+![image](https://github.com/user-attachments/assets/03546715-6301-47bb-bbca-390e19dcdf04)
+
+![image](https://github.com/user-attachments/assets/41180e51-12ce-408c-8995-bcc2bd22d1a1)
+
+![image](https://github.com/user-attachments/assets/5b31bb14-4cc5-43e3-bd8e-b4f4db9cfe15)
+
+![image](https://github.com/user-attachments/assets/48c6782d-4329-4d71-90c0-8c3efe48d139)
+
