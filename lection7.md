@@ -163,4 +163,5 @@
 зарабатывать.  
 
 
+![image](https://github.com/user-attachments/assets/517173b8-e6d5-4223-bb12-823c0e95c6a5)
 
