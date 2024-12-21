@@ -97,3 +97,7 @@
 организаций: общественные объединения; религиозные объединения;
 учреждения; благотворительные фонды; ассоциации; союзы.
 
+![image](https://github.com/user-attachments/assets/88fb973c-ff9e-4095-973e-2cab01330968)
+
+![image](https://github.com/user-attachments/assets/e1a28d71-ad15-46f6-8bba-aa27178a831d)
+
